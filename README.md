@@ -20,15 +20,11 @@
 
 [404 SkinNotFound v2](https://mega.nz/file/BZskRShT#hsmyqkWb6u7y7KwFpaQE0B0ABojcjOK70vxVVd7heQY)
 
-[Aesthetic 1.3 (Ring)
-
-](https://mega.nz/file/pU0gnYZZ#B6Y64yf3jQqkwZOkKxzZp07pbgA0ueNZlKtjxIkaiOk)
+[Aesthetic 1.3 (Ring)](https://mega.nz/file/pU0gnYZZ#B6Y64yf3jQqkwZOkKxzZp07pbgA0ueNZlKtjxIkaiOk)
 
 [Amaestric](https://mega.nz/file/sMVXDazR#-98QGSdwyglZyTyJBz5TTUVnsr9UJbi8Z9C0OvkWCcY)
 
-[Aristia(Edit)
-
-+trail](https://mega.nz/file/NVlmlajI#tl2yezWw5x1LM5NoNHvPXj9qu7AvQ_W6gt49yXMItNo)
+[Aristia(Edit)+trail](https://mega.nz/file/NVlmlajI#tl2yezWw5x1LM5NoNHvPXj9qu7AvQ_W6gt49yXMItNo)
 
 [boop](https://mega.nz/file/wMMHwKDC#CRWqFXIQKW-O1UwptHS5kWZbOKfJ6fKaIiWmuQ9pvHA)
 
