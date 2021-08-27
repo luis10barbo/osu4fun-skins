@@ -129,3 +129,5 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 [WhiteCat 1.0 CK](https://drive.google.com/file/d/1A9Ktx7MY-UP5iOGTTHsyQP622zDOKqfe/view?usp=sharingn)
 ![](https://osu.ppy.sh/ss/16967150/74fd)
 #
+[fierymod+v8+realest+ver+taiko+finish](http://puu.sh/DzzXo/7d82d1b303.osk)
+![](https://osu.ppy.sh/ss/16995693/8984)
