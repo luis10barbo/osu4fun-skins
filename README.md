@@ -131,3 +131,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [fierymod+v8+realest+ver+taiko+finish](http://puu.sh/DzzXo/7d82d1b303.osk)
 ![](https://osu.ppy.sh/ss/16995693/8984)
+#
+[Aireu 2019-11-20](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk)
+![](https://osu.ppy.sh/ss/17007474/4acf)
