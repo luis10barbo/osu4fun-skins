@@ -135,5 +135,5 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 [idke 1.2 without sliderendcircle](https://mega.nz/folder/w74SVCIL#UmPWRDrXGRKV5urcEAEovQ)
 ![](https://osu.ppy.sh/ss/17009145/3303)
 #
-[idke 1.2 with sliderendcircle](https://mega.nz/folder/w74SVCIL#UmPWRDrXGRKV5urcEAEovQ))
-https://osu.ppy.sh/ss/17009148/738f
+[idke 1.2 with sliderendcircle](https://mega.nz/folder/w74SVCIL#UmPWRDrXGRKV5urcEAEovQ)
+![](https://osu.ppy.sh/ss/17009148/738f)
