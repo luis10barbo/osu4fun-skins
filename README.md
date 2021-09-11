@@ -140,3 +140,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [BubbleGum](https://drive.google.com/file/d/1w_Yrn1p0h01Q5us7u9xdclvIVOaTEL1I/view)
 ![](https://osu.ppy.sh/ss/17015267/56ce)
+#
+[DigiSim](https://poyukeke.s-ul.eu/0yoDDmdt)
+![](https://osu.ppy.sh/ss/17046520/21e4)
