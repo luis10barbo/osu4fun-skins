@@ -143,3 +143,7 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [DigiSim](https://poyukeke.s-ul.eu/0yoDDmdt)
 ![](https://osu.ppy.sh/ss/17046520/21e4)
+#
+[azer8sthetic tourney ver](https://puu.sh/I0Zdh/78536411f9.osk)
+![](https://osu.ppy.sh/ss/17059576/9b31)
+
