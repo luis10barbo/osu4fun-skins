@@ -146,4 +146,7 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [azer8sthetic tourney ver](https://puu.sh/I0Zdh/78536411f9.osk)
 ![](https://osu.ppy.sh/ss/17059576/9b31)
+#
+[tekkito](https://files.catbox.moe/y4r7u9.osk)
+![](https://osu.ppy.sh/ss/17075966/0699)
 
