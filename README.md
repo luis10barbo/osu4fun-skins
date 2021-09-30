@@ -152,3 +152,7 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Suwumi](https://tones.s-ul.eu/PXYqU4GK)
 ![](https://osu.ppy.sh/ss/17108855/5eae)
+#
+[BRIQUEZ27 low ar](https://www.mediafire.com/file/cponle2mxrdypne/BRIQUEZ23_-Edited_by_Awjeezguys-.osk/file)
+![](https://osu.ppy.sh/ss/17113702/bbbc)
+
