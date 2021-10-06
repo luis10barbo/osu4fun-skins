@@ -156,5 +156,5 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 [BRIQUEZ27 low ar](https://www.mediafire.com/file/cponle2mxrdypne/BRIQUEZ23_-Edited_by_Awjeezguys-.osk/file)
 ![](https://osu.ppy.sh/ss/17113702/bbbc)
 #
-[Prawilosc vJP com cor](https://www.mediafire.com/file/cponle2mxrdypne/BRIQUEZ23_-Edited_by_Awjeezguys-.osk/file)
+[Prawilosc vJP com cor](https://mega.nz/file/F5sRyQ4S#qDa8sdLkkI7PXBKoiWhZnvFwMWYDQvu0xC9ScPTr__Q)
 ![](https://osu.ppy.sh/ss/17130759/3ffe)
