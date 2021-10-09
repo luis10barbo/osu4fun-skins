@@ -158,3 +158,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Prawilosc vJP com cor](https://mega.nz/file/F5sRyQ4S#qDa8sdLkkI7PXBKoiWhZnvFwMWYDQvu0xC9ScPTr__Q)
 ![](https://osu.ppy.sh/ss/17130759/3ffe)
+#
+[Joie's Sv9xTuna whale](https://vxc.s-ul.eu/SyY9X9YH)
+![]https://osu.ppy.sh/ss/17140434/88b4
