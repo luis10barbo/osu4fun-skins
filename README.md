@@ -161,3 +161,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Joie's Sv9xTuna whale](https://vxc.s-ul.eu/SyY9X9YH)
 ![](https://osu.ppy.sh/ss/17140434/88b4)
+#
+[Aireu 2019-11-20](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk)
+![](https://osu.ppy.sh/ss/17154924/7ee1)
