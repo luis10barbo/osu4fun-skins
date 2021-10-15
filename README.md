@@ -164,3 +164,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Aireu 2019-11-20](https://circle-people.com/wp-content/Skins/Aireu%20(lain)/Aireu%202019-11-20.osk)
 ![](https://osu.ppy.sh/ss/17154924/7ee1)
+#
+[Rafis 2017](https://drive.google.com/file/d/14Spty9f7_XRK1xdNr2FgnhTuZ3X1iG2g/view)
+![](https://osu.ppy.sh/ss/17159319/8884)
