@@ -167,3 +167,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Rafis 2017](https://drive.google.com/file/d/14Spty9f7_XRK1xdNr2FgnhTuZ3X1iG2g/view)
 ![](https://osu.ppy.sh/ss/17159319/8884)
+#
+[404SkinNotFound v1](https://drive.google.com/file/d/1SbUJcTKUJFdP5Fxb-UXWePdVj8aptI4_/view)
+![](https://osu.ppy.sh/ss/17163604/9169)
