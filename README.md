@@ -173,3 +173,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Delisha bunny galaxy](https://drive.google.com/drive/folders/12J66RBEu884z54MxRMFIoQsiHRlM8iAW)
 ![](https://osu.ppy.sh/ss/17182006/ca62)
+#
+[idk dude v6 cursortrail edition](https://drive.google.com/uc?id=1Lk6viW4a9--9z4cqCmItpnE2ORsH2tqL)
+![](https://osu.ppy.sh/ss/17201398/4249)
