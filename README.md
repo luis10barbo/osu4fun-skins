@@ -176,3 +176,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [idk dude v6 cursortrail edition](https://drive.google.com/uc?id=1Lk6viW4a9--9z4cqCmItpnE2ORsH2tqL)
 ![](https://osu.ppy.sh/ss/17201398/4249)
+#
+[Niko v6.32 SD](https://poyukeke.s-ul.eu/QWZFo3s0)
+![](https://osu.ppy.sh/ss/17220337/6089)
