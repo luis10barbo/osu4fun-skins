@@ -179,3 +179,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Niko v6.32 SD](https://poyukeke.s-ul.eu/QWZFo3s0)
 ![](https://osu.ppy.sh/ss/17220337/6089)
+#
+[Aristia (Mystia Edit)](https://www.mediafire.com/file/o4rg4fsb9hn4ahd/Aristia_%2528Mystia_Edit%2529.osk/file)
+![](https://osu.ppy.sh/ss/17232334/2181)
