@@ -3,6 +3,9 @@
 SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 
 #
+[Seoul v9 Pinapple](https://osu.ppy.sh/ss/17246133/9649)
+![](https://shigeskln.s-ul.eu/aZMjYmod)
+#
 [- # Checha SH TEST -](https://mega.nz/file/ERF3BaqR#rmOBp6wsp1c4NqeAtLC6HgYtSOjpHI4f-fuG9Wity_8)
 ![](https://osu.ppy.sh/ss/16966754/eea2)
 #
