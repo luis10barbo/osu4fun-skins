@@ -185,4 +185,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Seoul v9 Pinapple](https://shigeskln.s-ul.eu/aZMjYmod)
 ![](https://osu.ppy.sh/ss/17246133/9649)
-
+#
+[funorange 2021](https://drive.google.com/file/d/1Fh9u8uNKX29vSfuAqohBEZRlp78HTtES/view)
+![](https://osu.ppy.sh/ss/17266490/01a2)
