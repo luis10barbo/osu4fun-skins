@@ -188,3 +188,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [funorange 2021](https://drive.google.com/file/d/1Fh9u8uNKX29vSfuAqohBEZRlp78HTtES/view)
 ![](https://osu.ppy.sh/ss/17266490/01a2)
+#
+[BubbleSkin 2019 Edit](https://www.mediafire.com/file/i25llr8vicdnbcf/BubbleSkin20-10-09+copia.osk/file)
+![](https://osu.ppy.sh/ss/17274413/a859)
