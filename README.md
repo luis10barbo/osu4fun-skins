@@ -191,3 +191,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [BubbleSkin 2019 Edit](https://www.mediafire.com/file/i25llr8vicdnbcf/BubbleSkin20-10-09+copia.osk/file)
 ![](https://osu.ppy.sh/ss/17274413/a859)
+#
+[Bartek22830xOribiaHime](https://www.mediafire.com/file/luwotbpsp7i9oc4/Bartek22830xOribiaHime.osk/file)
+![](https://osu.ppy.sh/ss/17279304/cb7d)
