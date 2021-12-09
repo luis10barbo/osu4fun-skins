@@ -197,3 +197,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [CK Bacon boi 1.0 Rektygon](https://mega.nz/file/SxozXK5D#KIuHDxBYl4ZmRDSBp1YFNof1WALSxizzhSctJB1j9yA)
 ![](https://osu.ppy.sh/ss/17318137/0603)
+#
+[PATO FL MEGAMIX](https://www.mediafire.com/file/e6k4hd1c1k1mkfw/PATO_FL_MEGAMIX.osk/file)
+![](https://osu.ppy.sh/ss/17341608/7522)
