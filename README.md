@@ -200,3 +200,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [PATO FL MEGAMIX](https://www.mediafire.com/file/e6k4hd1c1k1mkfw/PATO_FL_MEGAMIX.osk/file)
 ![](https://osu.ppy.sh/ss/17341608/7522)
+#
+[Komori - PeguLian II (PwV)](https://mega.nz/file/jfIUmRxD#UHZcjqg5pbtsVnO2iCXevmAAXc8eTltupRNPWgyo-m0)
+![](https://osu.ppy.sh/ss/17353735/2dee)
