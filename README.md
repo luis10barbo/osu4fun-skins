@@ -209,3 +209,9 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Proteu](https://drive.google.com/file/d/1JruLoZjSx0HwO4UKID8UFMNjozvo6Iuf/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17383465/d2c4)
+#
+[Hey DT Purple Ryuk edit](https://skins.osuck.net/index.php?newsid=1369)
+![](https://skins.osuck.net/uploads/posts/2020-04/1588147161_screenshot8593.jpg)
+#
+[Rafis 2017 XD](https://cdn.discordapp.com/attachments/870640820364124162/926849991320961034/Rafis_2017_XD.osk)
+![](https://osu.ppy.sh/ss/17413623/d718)
