@@ -215,3 +215,9 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Rafis 2017 XD](https://cdn.discordapp.com/attachments/870640820364124162/926849991320961034/Rafis_2017_XD.osk)
 ![](https://osu.ppy.sh/ss/17413623/d718)
+#
+[- XooMoon -](https://drive.google.com/file/d/1roikQoTLjyTuytl4ivKIeaSQqSa89wTM/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17447986/19d7)
+#
+[RYUKAYYYY MONKOOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc)
+![](https://osu.ppy.sh/ss/17447997/c711)
