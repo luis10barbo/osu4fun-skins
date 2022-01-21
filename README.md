@@ -224,3 +224,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Xilver 2017-08-10](https://cdn.discordapp.com/attachments/870640820364124162/934115760912076810/Xilver_2017-08-10.rar)
 ![](https://osu.ppy.sh/ss/17476402/6211)
+#
+[404 Skin Not Found](https://cdn.discordapp.com/attachments/644258437735251988/644258866573344769/404_Skin_Not_Found.osk)
+![](https://osu.ppy.sh/ss/17477461/cd2a)
