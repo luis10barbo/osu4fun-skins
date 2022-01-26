@@ -227,3 +227,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [404 Skin Not Found](https://cdn.discordapp.com/attachments/644258437735251988/644258866573344769/404_Skin_Not_Found.osk)
 ![](https://osu.ppy.sh/ss/17477461/cd2a)
+#
+[Rainbow Skin](https://cdn.discordapp.com/attachments/870640820364124162/935915756376453150/Rainbow_Skin.osk)
+![](https://osu.ppy.sh/ss/17493005/0f05)
