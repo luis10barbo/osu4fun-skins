@@ -90,8 +90,8 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 [-RisukumaSkin 2.0](https://mega.nz/file/AZlWkaoY#Vwyq-e5sUe4pYVUCerojKcCekIKAZjOH4qbvFwnovzQ)
 ![](https://osu.ppy.sh/ss/16967066/e6f9)
 #
-[RT Personal Skin](https://mega.nz/file/1ZURnIgQ#5UnQDmLph-CLd36gWD1TVOPzMYrxqfQZ5XdcMpJbWYo)
-![](https://osu.ppy.sh/ss/16967074/9437)
+[RT Personal Skin](https://www.mediafire.com/file/qiruj4mvnvd5n6m/RT_Personal_Skin.osk/file)
+![](https://osu.ppy.sh/ss/17520786/a4e1)
 #
 [the gordo](https://mega.nz/file/ZR8wjIDS#z3lFd9G8R9GBl5Hc8WFJtncduW3sHabdYxqRLFm0BVQ)
 ![](https://osu.ppy.sh/ss/16967081/255f)
@@ -230,3 +230,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [Rainbow Skin](https://cdn.discordapp.com/attachments/870640820364124162/935915756376453150/Rainbow_Skin.osk)
 ![](https://osu.ppy.sh/ss/17493005/0f05)
+#
+[DevilGreen 2.0 NM](https://cdn.discordapp.com/attachments/870640820364124162/938769218059522128/DevilGreen_2.0_NM.osk)
+![](https://osu.ppy.sh/ss/17520783/c9d7)
