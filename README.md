@@ -233,3 +233,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [DevilGreen 2.0 NM](https://cdn.discordapp.com/attachments/870640820364124162/938769218059522128/DevilGreen_2.0_NM.osk)
 ![](https://osu.ppy.sh/ss/17520783/c9d7)
+#
+[boop xxluiz](https://poyukeke.s-ul.eu/rbNIhulK)
+![](https://osu.ppy.sh/ss/17526097/57ad)
