@@ -236,3 +236,6 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 #
 [boop xxluiz](https://poyukeke.s-ul.eu/rbNIhulK)
 ![](https://osu.ppy.sh/ss/17526097/57ad)
+#
+[Toke_Mocha](https://cdn.discordapp.com/attachments/860414665992175626/937061857049591828/Toke_Mocha.osk)
+![](https://osu.ppy.sh/ss/17535350/d6c0)
