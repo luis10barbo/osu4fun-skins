@@ -243,5 +243,5 @@ SE SUA SKIN NÃO TIVER AQUI, MANDE NO CANAL #4fun-replays-skins.
 [crystallized (mush4 + aetrna edit)](https://mega.nz/file/ipAFFIRI#xkmhuYg93m_KOmQSBH_Lb1UbMeE3XE4cFpyzzyRuzco)
 ![](https://osu.ppy.sh/ss/17562832/d2a6)
 #
-[Toke - Natsukihina] (https://cdn.discordapp.com/attachments/612839196121628685/670758050373566483/Toke_-_Natsukihina.osk)
+[Toke - Natsukihina](https://cdn.discordapp.com/attachments/612839196121628685/670758050373566483/Toke_-_Natsukihina.osk)
 ![](https://osu.ppy.sh/ss/17614673/62ff)
