@@ -162,5 +162,5 @@
 ![](https://osu.ppy.sh/ss/17614673/62ff)
 # [[Cal] & Rafis Prawilosc vJP](https://www.mediafire.com/file/p03oa3dv2o4rhdz/%255BCal%255D_%2526_Rafis_Prawilosc_vJP.osk/file)
 ![](https://osu.ppy.sh/ss/17619097/bca8)
-# [Forza(rafis cookiezi).osk](https://forza.s-ul.eu/vkz2CZxr)
+# [Forza(rafis cookiezi)](https://forza.s-ul.eu/vkz2CZxr)
 ![](https://osu.ppy.sh/ss/17627920/03fb)
