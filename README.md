@@ -170,3 +170,5 @@
 ![](https://osu.ppy.sh/ss/17685027/09f6)
 # [WhiteCat x Keep Grinding](https://drive.google.com/file/d/1bptCkBTNVGc5kiUygEBXWgosldSf_UnC/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17737939/3360)
+# [Rohulk 4.0](https://skins.osuck.net/index.php?newsid=801)
+![](https://osu.ppy.sh/ss/17784274/42b9)
