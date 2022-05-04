@@ -172,3 +172,5 @@
 ![](https://osu.ppy.sh/ss/17737939/3360)
 # [Rohulk 4.0](https://skins.osuck.net/index.php?newsid=801)
 ![](https://osu.ppy.sh/ss/17784274/42b9)
+# [- Risukuma Skin2.2](https://risukuma.s-ul.eu/0y8Kt815)
+![](https://osu.ppy.sh/ss/17784850/ce6c)
