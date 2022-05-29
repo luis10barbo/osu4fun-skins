@@ -180,3 +180,5 @@
 ![](https://osu.ppy.sh/ss/17824931/adb8)
 # [forza nekiryay(CTL472mix)](https://forza.s-ul.eu/aGlqYtUD)
 ![](https://osu.ppy.sh/ss/17850977/711b)
+# [Rohulk 5.0b (Sord edit)](https://sordruther.s-ul.eu/g0lFR8c8)
+![](https://osu.ppy.sh/ss/17850995/fad9)
