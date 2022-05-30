@@ -182,3 +182,5 @@
 ![](https://osu.ppy.sh/ss/17850977/711b)
 # [Rohulk 5.0b (Sord edit)](https://sordruther.s-ul.eu/g0lFR8c8)
 ![](https://osu.ppy.sh/ss/17850995/fad9)
+# [im a fancy lad & shige DT](https://www.mediafire.com/file/vdogkb74p9o25td/im+a+fancy+lad+&+shige+DT.osk/file)
+![](https://osu.ppy.sh/ss/17855268/46b1)
