@@ -184,3 +184,5 @@
 ![](https://osu.ppy.sh/ss/17850995/fad9)
 # [im a fancy lad & shige DT](https://www.mediafire.com/file/vdogkb74p9o25td/im+a+fancy+lad+&+shige+DT.osk/file)
 ![](https://osu.ppy.sh/ss/17855268/46b1)
+# [- Risukuma Skin2.2 (nofade)](https://poyukeke.s-ul.eu/xr9TBqbt)
+![](https://poyukeke.s-ul.eu/xr9TBqbt)
