@@ -186,3 +186,5 @@
 ![](https://osu.ppy.sh/ss/17855268/46b1)
 # [- Risukuma Skin2.2 (nofade)](https://poyukeke.s-ul.eu/xr9TBqbt)
 ![](https://osu.ppy.sh/ss/17881421/1d02)
+# [Aristia(Edit) colored version](https://drive.google.com/file/d/1mf9kibpHGwh-N95oAFTxZ8M3WCfJY_3F/view?usp=sharing)
+![](https://osu.ppy.sh/ss/17891995/5886)
