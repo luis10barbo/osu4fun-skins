@@ -188,3 +188,5 @@
 ![](https://osu.ppy.sh/ss/17881421/1d02)
 # [Aristia(Edit) colored version](https://drive.google.com/file/d/1mf9kibpHGwh-N95oAFTxZ8M3WCfJY_3F/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/17891995/5886)
+# [stale_human lookalike](https://sordruther.s-ul.eu/phOFRLwS)
+![](https://osu.ppy.sh/ss/17899725/d339)
