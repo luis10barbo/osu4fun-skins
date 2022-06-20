@@ -190,3 +190,5 @@
 ![](https://osu.ppy.sh/ss/17891995/5886)
 # [stale_human lookalike](https://sordruther.s-ul.eu/phOFRLwS)
 ![](https://osu.ppy.sh/ss/17899725/d339)
+# [#Azerite (osu player84) #2](https://skins.osuck.net/index.php?newsid=2)
+![](https://osu.ppy.sh/ss/17911155/26aa)
