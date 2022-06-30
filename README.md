@@ -192,3 +192,5 @@
 ![](https://osu.ppy.sh/ss/17899725/d339)
 # [#Azerite (osu player84) #2](https://skins.osuck.net/index.php?newsid=2)
 ![](https://osu.ppy.sh/ss/17911155/26aa)
+# [aristiafumireko](http://desgraca.online/files/aristiafumireko.osk)
+![](https://osu.ppy.sh/ss/17935803/e6ec)
