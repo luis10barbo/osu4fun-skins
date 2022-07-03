@@ -30,7 +30,7 @@
 ![](https://osu.ppy.sh/ss/16966964/4e78)
 # [CS Skin ver.6.9 DUB Edition Remix](https://mega.nz/file/QQ9mVABR#6rKeCYYpGeeSCWMEkFpvt5Yu9_xQEAoKutX6bezNxA0)
 ![](https://osu.ppy.sh/ss/16966972/7059)
-# [DevilGreen SK {NM}](https://cdn.discordapp.com/attachments/743748236057247774/866631974252707840/DevilGreen_SK_NM.osk)
+# [DevilGreen SK NM](https://cdn.discordapp.com/attachments/743748236057247774/866631974252707840/DevilGreen_SK_NM.osk)
 ![](https://osu.ppy.sh/ss/16966977/8565)
 # [crystallized cookie](https://mega.nz/file/EFd3BSpR#ReRc2ZuKEzkSG1VaMQrpBCx0FD0gMSr5CGYIJzJZo1M)
 ![](https://osu.ppy.sh/ss/16966984/4ba6)
