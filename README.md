@@ -150,7 +150,7 @@
 ![](https://osu.ppy.sh/ss/17477461/cd2a)
 # [Rainbow Skin](https://cdn.discordapp.com/attachments/870640820364124162/935915756376453150/Rainbow_Skin.osk)
 ![](https://osu.ppy.sh/ss/17493005/0f05)
-# [DevilGreen 2.0 NM](https://cdn.discordapp.com/attachments/870640820364124162/938769218059522128/DevilGreen_2.0_NM.osk)
+# [DevilGreen 2.0 {NM}](https://cdn.discordapp.com/attachments/870640820364124162/938769218059522128/DevilGreen_2.0_NM.osk)
 ![](https://osu.ppy.sh/ss/17520783/c9d7)
 # [boop xxluiz](https://poyukeke.s-ul.eu/rbNIhulK)
 ![](https://osu.ppy.sh/ss/17526097/57ad)
