@@ -196,3 +196,5 @@
 ![](https://osu.ppy.sh/ss/17911155/26aa)
 # [aristiafumireko](http://desgraca.online/files/aristiafumireko.osk)
 ![](https://osu.ppy.sh/ss/17935803/e6ec)
+# [mathi ensalada v1.5 (Yellow cursor)](http://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
+![](https://osu.ppy.sh/ss/17973630/7da1)
