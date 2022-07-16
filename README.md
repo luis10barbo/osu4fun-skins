@@ -198,3 +198,6 @@
 ![](https://osu.ppy.sh/ss/17935803/e6ec)
 # [mathi ensalada v1.5 (Yellow cursor)](http://www.mediafire.com/file/dasthizozmbr3dg/mathi_ensalada_v1.5_%2528Yellow_cursor%2529.osk/file)
 ![](https://osu.ppy.sh/ss/17973630/7da1)
+# [- Overlord Albedo {NM} - Sord Edit](Sordruther — hoy a las 16:01
+https://sordruther.s-ul.eu/34I8UNFJ)
+![](https://osu.ppy.sh/ss/17978971/b711)
